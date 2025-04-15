@@ -137,4 +137,4 @@ Theo Tracuuthansohoc.com, **[con số chủ đạo 6 nghề nghiệp](https://e
 
 **Người có số chủ đạo là 6** mang trong mình tình yêu thương, trách nhiệm và óc sáng tạo mạnh mẽ. Họ là những cá nhân tận tụy, luôn hướng đến sự hài hòa và hạnh phúc cho những người xung quanh. Tuy nhiên, để sống hạnh phúc hơn, họ cần học cách cân bằng giữa việc giúp đỡ người khác và chăm sóc bản thân.
 
-Nếu bạn muốn biết chính xác mình có số chủ đạo 6 hay không hoặc số chủ đạo 6 hợp số nào, hãy truy cập ngay Tracuuthansohoc.com để tra cứu chi tiết.
+Nếu bạn muốn biết chính xác mình có số chủ đạo 6 hay không hoặc **[số chủ đạo 6 hợp số nào?](https://www.band.us/band/88000873/post/242)**, hãy truy cập ngay Tracuuthansohoc.com để tra cứu chi tiết.
